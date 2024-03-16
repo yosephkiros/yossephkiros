@@ -1,2 +1,2 @@
 # yossephkiros
-!theis is me 
+I am new software developer live in Dallas   
